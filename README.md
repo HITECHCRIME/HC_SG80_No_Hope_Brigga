@@ -56,7 +56,7 @@ i need to stay
 i need to stay
 it's just my way
 
-stuck the rax
+stuck to the rax
 
 stacking that salt
 life isn't fair
