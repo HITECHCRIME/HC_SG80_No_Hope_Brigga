@@ -40,18 +40,41 @@ ey yo ey
 stacking it all
 breaching the sphere
 eternal mist 
+fucking the endless 
+this is so real
+this is surreal
+
+no hope no hope no hope no hope
+
+no no no noooou
+
+maybe i'll just fucking  go away
+
+- aye
+
+i need to stay
+i need to stay
+it's just my way
+
+stuck the rax
+
+stacking that salt
+life isn't fair
+i should know that
+you better run
+out of my way
+thoughts are apart
+just like the rax
+ey yo ey
+
+stacking it all
+breaching the sphere
+eternal mist 
 fucking  the endless 
 this is so real
 this is surreal
 
-just go away
-
-- aye
-
-
-
-i need to stay
-it's just my way
+no hope no hope no hope
 
 
 ```
