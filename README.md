@@ -74,6 +74,12 @@ fucking  the endless
 this is so real
 this is surreal
 
+x
+x
+x
+x
+you got nothing to object
+
 no hope no hope no hope
 
 
