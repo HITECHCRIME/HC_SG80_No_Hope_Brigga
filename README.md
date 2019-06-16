@@ -21,22 +21,36 @@ no hope
 no hope
 no, no hope
 
-no hope no hope
-nigga
-no hope no hope no hope
-nigga (nigga)
-no hope no hope no hope
-nigga
-no hope no hope no hope
-niggaaaaaa
+no hope no hope - nigga
+no hope no hope no hope - nigga (nigga)
+no hope no hope no hope - nigga
+no hope no hope no hope - niggaaaaaa
 
-stacking them rax
+stacking that salt
 life isn't fair
+i should know that
 you better run
 out of my way
-aye
+thoughts are apart
+just like the rax
+ey yo ey
 
 stacking it all
+breaching the sphere
+eternal mist 
+fucking  the endless 
+this is so real
+this is surreal
+
+just go away
+
+- aye
+
+
+
+i need to stay
+it's just my way
+
 
 ```
 
