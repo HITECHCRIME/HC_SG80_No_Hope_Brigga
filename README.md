@@ -3,6 +3,8 @@
 https://www.youtube.com/watch?v=ylVlsOotqLE
 *FREE* BONES x Night Lovell Type Beat 2019 - "No Hope" ft. $uicideBoy$ | Prod by Instinct
 
+LOST NET EP MATERIAL?
+
 ## Lyrics
 
 ```
