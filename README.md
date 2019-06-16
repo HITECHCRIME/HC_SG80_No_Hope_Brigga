@@ -6,7 +6,32 @@ https://www.youtube.com/watch?v=ylVlsOotqLE
 ## Lyrics
 
 ```
+no hope
+no hope
+no hope
+no hope
+no hope
+no hope
+no hope
+no hope
+no no hope
+no hope
+no hope
+no hope
+no hope
+no, no hope
 
+no hope no hope
+nigga
+no hope no hope no hope
+nigga (nigga)
+no hope no hope no hope
+nigga
+no hope no hope no hope
+niggaaaaaa
+
+stacking them rax
+life isn't fair
 
 ```
 
