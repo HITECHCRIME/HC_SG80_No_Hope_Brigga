@@ -28,13 +28,13 @@ no hope no hope no hope - nigga (nigga)
 no hope no hope no hope - nigga
 no hope no hope no hope - niggaaaaaa
 
-stacking that salt
+stacking that salt (sick of myself)
 life isn't fair
-i should know that
+i should know that 
 you better run
 out of my way
 thoughts are apart
-just like the rax
+just like the rax (just for the drugs)
 ey yo ey
 
 stacking it all
