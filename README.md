@@ -91,3 +91,7 @@ no hope no hope no hope
 ## Notes
 
 ## Music Video
+
+The Endless is a VR immersion program that drives people to exhaustion through being enticing to the point of trance.
+
+I treat this state of a song as a sketch. Things are bound to change in some aspects. The first idea was for the song to be written from a perspective of a hacker (diver) whose crew got wiped and imprisoned in an advanced facility.
