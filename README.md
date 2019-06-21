@@ -7,6 +7,7 @@ LOST NET EP MATERIAL?
 
 ## Lyrics
 
+
 ```
 no hope
 no hope
